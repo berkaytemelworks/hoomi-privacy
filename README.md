@@ -1,0 +1,1 @@
+Hoomi privacy policy
